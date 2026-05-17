@@ -1,9 +1,3 @@
-hi my name is kel or thomas. im mostly known for being everywhere and anywhere
-you can mostly find me in gtcs or docks and rarely anywhere else. though if you do then hi
-
-I can sometimes be sarcastic and blunt because i get mad easily but besides that feel free to interact with me. I don't mind c+h just go ahead unless i have dni
-
-you can find me in ttte or lego skins
 
 <p align="center">
-<img width="498" height="357" alt="lego-ninjago-lego" src="https://github.com/user-attachments/assets/1a05d665-1927-4c65-b5a2-7d6868f4a148" />
+<img width="498" height="281" alt="splatoon-3-veronika" src="https://github.com/user-attachments/assets/48c6ef82-8636-413a-b31f-128227294d40" />
